@@ -1,14 +1,13 @@
-Peak oh my days this stuff is weird to make look cool 
+i cant for the life of me be bothered to make this pretty lowk
 
-ok. everything you need to know is on my sp + rentry when i feel finished with it
-but here, pt info .
+i sit on ponytown sometimes. often with a friend, rarely on alone .
 
-c+h at any time !! i love it, don't worry man i dont care 
-(especially if you're cosplaying something of the same fandom :))
+put gimmicks on my strawpage .. its outdated. read my rentry for more up-to-date and  sssemidetailed info !!
 
-wawawawawa im chronically offtab, even if you whisper i might not see it ! sorry man i can't much help it, i sit with ponytown open and i return to it at random
-uuuhhhhhhh idk what else to put here i just needed extra info or whatever
-check sp for interests.slightly outdated i cant be bothered sorry i think
-meeooowww
+c+h anytime. i love it. especially if you're the same fandom and such. its awesome. i do not bite i swear brother
 
-i might make this pretty one day i dont know man i just sit here
+im literally like always offtab. sorry if i miss messages or anything, i'm rarely actually focused on The Game Of Sitting Around because of.. the obvious .
+
+this is hit game pony dot town i dont gaf brother i am on very rarely atp , mostly on 18+ . if you see me say hellooo i will say helloooo idk play my games collect my pages or something . there's 8 of them scattered in this town go find them or ill GET you 
+
+awesome sauces ok that is all
